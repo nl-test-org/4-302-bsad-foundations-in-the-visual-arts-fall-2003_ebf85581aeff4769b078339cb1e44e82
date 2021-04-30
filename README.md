@@ -1,0 +1,1 @@
+# 4-302-bsad-foundations-in-the-visual-arts-fall-2003_ebf85581aeff4769b078339cb1e44e82
